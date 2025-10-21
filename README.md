@@ -20,3 +20,5 @@ Each GSI organization should send 2 representatives.
 The event will run for 45 minutes, with estimated 4 minutes per partner interaction.
 
 Please arrive a few minutes early to get settled at the  benches near the Gateway Pavilion.
+<img width="611" height="703" alt="Universe Map" src="https://github.com/user-attachments/assets/23493e3d-43a0-4dba-a75f-1b0d51d24d32" />
+<img width="633" height="328" alt="Gateway Plaza Detail" src="https://github.com/user-attachments/assets/9a154725-4b9d-49d2-a817-3d27d8d90846" />
